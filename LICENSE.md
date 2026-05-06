@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with jujutsu infinite best Scripts, the #1 Script. Includes instant win and god mode for unbeatable
 
 
 
